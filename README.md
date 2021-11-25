@@ -8,7 +8,8 @@
 - 😆 Procuro por pessoas que, de forma cooperativa, some na busca de conhecimento
 - 💬 Seja educado comigo e serei com você. Não seja educado comigo e eu continuarei sendo educado com você!
 - ⚡ Acredito que a nossa energia faz a nossa felicidade 🧘‍♂️
---> <img src=https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/powerup.gif width="30">
+--> 
+
 
 
 
