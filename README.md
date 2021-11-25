@@ -8,7 +8,7 @@
 - 😆 Procuro por pessoas que, de forma cooperativa, some na busca de conhecimento
 - 💬 Seja educado comigo e serei com você. Não seja educado comigo e eu continuarei sendo educado com você!
 - ⚡ Acredito que a nossa energia faz a nossa felicidade 🧘‍♂️
---> <img src=https://i.gifer.com/1nD2.gif width="30">
+--> <img src=https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Fcall-of-duty-modern-warfare&psig=AOvVaw3ujBkQJMArVh_VALNUhd_g&ust=1637957381130000&source=images&cd=vfe&ved=0CAgQjRxqFwoTCMjDqfqotPQCFQAAAAAdAAAAABAP width="30">
 
 
 
