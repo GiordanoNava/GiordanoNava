@@ -8,7 +8,7 @@
 - 😆 Procuro por pessoas que, de forma cooperativa, some na busca de conhecimento
 - 💬 Seja educado comigo e serei com você. Não seja educado comigo e eu continuarei sendo educado com você!
 - ⚡ Acredito que a nossa energia faz a nossa felicidade 🧘‍♂️
-- <code><img height= "20"src= https://img.shields.io/badge/Java-ED8B00?style=for-the-badge&logo=java&logoColor=white></code>
+- <img height= "20"src= https://img.shields.io/badge/Java-ED8B00?style=for-the-badge&logo=java&logoColor=white>
 ![COD-Magma-Reveal-Trailer-Thumb_YT](https://user-images.githubusercontent.com/95048741/143497310-97c8a924-fb45-4061-a0a0-c18a8d96f908.jpg)
 
 
