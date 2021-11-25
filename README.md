@@ -11,7 +11,4 @@
 --> 
 
 
-
-![call-of-duty-temporadas](https://user-images.githubusercontent.com/95048741/143497089-bbb956a5-367c-4095-91a2-50d7e2ef859c.jpg)
-
-
+![download](https://user-images.githubusercontent.com/95048741/143497158-bdc13cd2-9837-41b1-8537-0b8f696be20a.jpg)
