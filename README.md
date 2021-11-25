@@ -9,6 +9,7 @@
 - 💬 Seja educado comigo e serei com você. Não seja educado comigo e eu continuarei sendo educado com você!
 - ⚡ Acredito que a nossa energia faz a nossa felicidade 🧘‍♂️
 --> 
+![COD-Magma-Reveal-Trailer-Thumb_YT](https://user-images.githubusercontent.com/95048741/143497310-97c8a924-fb45-4061-a0a0-c18a8d96f908.jpg)
 
 
-![download](https://user-images.githubusercontent.com/95048741/143497279-a844fcef-74d5-418d-952d-b30393a17c7a.jpg)
+
