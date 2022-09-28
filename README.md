@@ -1,6 +1,6 @@
 ### Olá, pessoal 👋
 
-## Meu nome é Giordano e tenho 25 anos
+## Meu nome é Giordano e tenho 26 anos
 
 - 💻 No momento estou estudando e aprimorando meus estudos na área da programação
 - 📖 Sou formado em Educação Física e gosto muito de esportes ⚽
